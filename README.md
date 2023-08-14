@@ -1,2 +1,4 @@
 # Experiences
-![image](https://github.com/Julianamariela/Experience/assets/139262897/6d010b3c-1dcf-4dfb-9366-bf05f0b4988c)
+
+
+![image](https://github.com/julianamariela/Experiences/assets/139262897/349e4484-630c-4b08-8d4b-5db57e305d28)
